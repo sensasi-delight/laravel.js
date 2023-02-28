@@ -1,1 +1,1 @@
-# laravel.js
+# Tertipu kau bangsaaaaad
